@@ -1,1 +1,1 @@
-This is just a single sample portfolio, my first
+This is just a single sample portfolio
